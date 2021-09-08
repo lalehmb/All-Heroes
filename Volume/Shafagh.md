@@ -1,5 +1,6 @@
-*Notes:*
-- I started logging my students record, mainly to ???
+*Badges*
+
+
 
 ### Tuesday, 7th of September, 2021
 Status: Tired Warrior 

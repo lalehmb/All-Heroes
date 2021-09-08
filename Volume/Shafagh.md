@@ -2,7 +2,8 @@
 - I started logging my students record, mainly to ???
 
 ### Tuesday, 7th of September, 2021
-Status: tired warrior :hot_face:
+Status: Tired Warrior 
+:hot_face:
 
 - Body on Rings, Phase 1, up & down
     - 4x4 Pike Pushups on Rings

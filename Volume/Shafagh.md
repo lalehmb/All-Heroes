@@ -11,7 +11,7 @@ Status: Tired Warrior
     - 3x10 Ring Rows
     - 3x8 1-hand Biceps Curl
     - 3x20 Squat Walk
-    - 2x8 Nordic Hams Curl with Hinged Hip
+    - 1x8 Nordic Hams Curl with Hinged Hip  *Pain in Knees*
     - 2x10 1-Leg Splits on Ring [Middle + Side]
    
    

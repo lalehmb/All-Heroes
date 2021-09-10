@@ -4,7 +4,7 @@
 
 ### Wednesday, 8th of September, 2021
 Status: Energetic Warrior at the Campus :
-:hot_face:
+:cowboy_hat_face:
 
 - Begin With Body Weight, Phase 2, Push & Hams
     - 1x26 + 2x8 Pike Pushups on ground + 30-40cm feet elevated

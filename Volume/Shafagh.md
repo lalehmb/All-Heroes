@@ -1,5 +1,3 @@
-*Badges*
-
 
 
 ### Tuesday, 7th of September, 2021

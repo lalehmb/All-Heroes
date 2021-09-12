@@ -1,4 +1,3 @@
-*Badges*
 ### Tuesday, 7th of September, 2021
 
 Status: Injured Warrior :face_with_head_bandage:

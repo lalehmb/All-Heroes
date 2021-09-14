@@ -11,7 +11,7 @@ Status: Tired Warrior
     - Rope
     - DeadBug
     - Plank Shoulder Tap
-    Finisher: 50s Plank
+ - Finisher: 50s Plank
    
 ### Sunday, 12th of September, 2021
    
@@ -24,7 +24,7 @@ Status: Warrior
     - Crow Shoulder Tap
     - Russian Twist
     - Hip Bridge
-    Finisher: 40s Plank
+ - Finisher: 40s Plank
 
 ### Tuesday, 14th of September, 2021
    
@@ -37,4 +37,4 @@ Status: Warrior 💪
     - Leg Crunch - Single Leg
     - Side Plank
     - Mountain Climber
-    Finisher: 20s Plank
+ - Finisher: 20s Plank

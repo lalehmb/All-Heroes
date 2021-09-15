@@ -1,6 +1,3 @@
-*Badges*
-
-
 
 ### Wednesday, 8th of September, 2021
 Status: Energetic Warrior at the Campus :cowboy_hat_face:

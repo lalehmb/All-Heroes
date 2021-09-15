@@ -12,7 +12,7 @@ Status: Energetic Warrior at the Campus :cowboy_hat_face:
     - 3x10 Single Leg V-Ups
    
 ### Monday, 13th of September, 2021
-Status: Energetic Warrior 💪
+Status: Energetic Warrior 👊
 
 - Begin With Body Weight, Phase 2, Pull & Legs
     - 3x25s Back to Wall Handstand

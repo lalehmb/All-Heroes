@@ -20,3 +20,15 @@ Status: Vaccinated Warrior :syringe:
     - 30 T, Y, I Fly on Ground
     - 3x10 Front Raise - Rubber Band
     - 3x10 FacePull - Rubber Band
+
+### Sunday, 17th of September, 2021
+
+Status: Warrior 💪
+
+- Full Body
+   - 5x3 Chin Ups with Band
+   - 3x10 (4kg) Lying Dumbbell Triceps Extension
+   - 2x10 (6kg) + 1x7 (10kg) Lying Down Dumbbell Fly
+   - 2x10 (30cm) + 1x8 (20cm) Pistol Squat
+   - 2x30 Heel Raise
+   - 2x12 Shoulder Mobility

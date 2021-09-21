@@ -21,7 +21,7 @@ Status: Vaccinated Warrior :syringe:
     - 3x10 Front Raise - Rubber Band
     - 3x10 FacePull - Rubber Band
 
-### Sunday, 17th of September, 2021
+### Sunday, 19th of September, 2021
 
 Status: Warrior 💪
 

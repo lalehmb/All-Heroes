@@ -32,3 +32,15 @@ Status: Warrior 💪
    - 2x10 (30cm) + 1x8 (20cm) Pistol Squat
    - 2x30 Heel Raise
    - 2x12 Shoulder Mobility
+
+### Tuesday, 21th of September, 2021
+
+Status: Warrior 💪
+
+- Full Body
+   - 12 + 2x8 Dumbbell Shoulder Press
+   - 3x12 Ring Rows
+   - 3x12 Ring Biceps Curl
+   - 3x8 Push-Ups
+   - 3x12 Squat Walk
+   - 2x8 Middle/Side Stretch on Ring

@@ -42,5 +42,5 @@ Status: Warrior 💪
    - 3x12 Ring Rows
    - 3x12 Ring Biceps Curl
    - 3x8 Push-Ups
-   - 3x12 Squat Walk
-   - 2x8 Middle/Side Stretch on Ring
+   - 2x24 Squat Walk
+   - 2x8 1-Leg Splits on Ring [Middle + Side]

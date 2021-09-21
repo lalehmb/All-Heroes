@@ -23,3 +23,15 @@ Status: Energetic Warrior 👊
     - 36, 14, 16 Spider Plank
     - 3x1 min Rope
    
+### Monday, 20th of September, 2021
+Status: Warrior 💪
+
+- Begin With Body Weight, Phase 2, Pull & Legs
+    - 3x10 Wall Slide
+    - 2x15 Scap Pull Ups
+    - 3x12 Shrimp Squat
+    - 25s, 20s Chin Up Hold on 3 Stations
+    - 2x45s Horse Walk/Stand
+    - 3x15 Side Plank Leg Raises
+    - 3x40s Hollow Body Hold
+   

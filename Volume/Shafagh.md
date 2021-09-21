@@ -22,3 +22,15 @@ Status: Warrior  💪
     - 2x18 Lunge Walk
     - 2x33 Heel Raise 
 
+### Tuesday, 21th of September, 2021
+
+Status: Injured Warrior :face_with_head_bandage:
+
+- Legs & Shoulder Recovery
+   - 3x10 Front Raise - 1Kg Dumbbell
+   - 3x10 Wall Slide on Ground
+   - 3x10 I, Y, W Fly on Ground
+   - 2x12 (2kg) Side Lying Rotator Cuff Curls with Dumbbell 
+   - 3x14 Lunge Walk
+   - 2x24 Squat Walk
+   - 2x8 1-Leg Splits on Ring [Middle + Side]

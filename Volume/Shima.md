@@ -44,3 +44,15 @@ Status: Warrior 💪
    - 3x8 Push-Ups
    - 2x24 Squat Walk
    - 2x8 1-Leg Splits on Ring [Middle + Side]
+
+### Sunday, 26th of September, 2021
+
+Status: Warrior 💪
+
+- Full Body
+   - 5x3 Chin Ups with Band
+   - 2x10 (6kg) + 1x5 (10kg) Lying Dumbbell (Triceps Extension + Dumbbell Fly)
+   - 3x8 (20cm) Pistol Squat
+   - 1x24s Negative Push-Ups
+   - 2x33 Heel Raise
+   - 30 Shoulder Mobility

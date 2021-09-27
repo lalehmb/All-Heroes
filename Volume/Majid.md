@@ -35,3 +35,15 @@ Status: Warrior 💪
     - 3x15 Side Plank Leg Raises
     - 3x40s Hollow Body Hold
    
+### Monday, 27th of September, 2021
+Status: Warrior 💪
+
+- Begin With Body Weight, Phase 2, Pull & Legs
+    - 3x30s Back to Wall Handstand
+    - 3x9 Jump Pull Ups
+    - 2x12 (4kg) Deep Lunges with Rotation
+    - 2x13 (4kg) Romanian Deadlift
+    - 3x12 Elbows Up to Hand Plank
+    - 3x20 Spider Plank
+    - 3x1 min Rope
+    - 4x5 Shoulder Mobility

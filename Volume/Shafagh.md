@@ -34,3 +34,16 @@ Status: Injured Warrior :face_with_head_bandage:
    - 3x14 Lunge Walk
    - 2x24 Squat Walk
    - 2x8 1-Leg Splits on Ring [Middle + Side]
+
+### Tuesday, 28th of September, 2021
+
+Status: Injured Warrior :face_with_head_bandage:
+
+- Full Body
+   - 2x10 I, Y, W Fly on Ground
+   - 2x10 Shoulder Mobility 
+   - 3x10 Facepull, Front Raise, Pull Through with Band
+   - 2x15 (2kg) Lying Rotator Cuff
+   - 3x16 Lunge Walk
+   - 2x30 Hell Raise
+   - 2x10 1-Leg Splits on Ring [Middle + Side]

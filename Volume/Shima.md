@@ -56,3 +56,15 @@ Status: Warrior 💪
    - 1x24s Negative Push-Ups
    - 2x33 Heel Raise
    - 30 Shoulder Mobility
+
+### Tuesday, 28th of September, 2021
+
+Status: Warrior 💪
+
+- Full Body
+   - 3x10 (3kg) Dumbbell Shoulder Press 
+   - 3x12 Ring Rows
+   - 3x13 Ring Biceps Curl
+   - 2x9 + 8 Push-Ups
+   - 2x15 (3kg) Dumbbell Hamstring Curl
+   - 2x10 1-Leg Splits on Ring [Middle + Side]

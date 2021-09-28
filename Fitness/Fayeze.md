@@ -34,4 +34,14 @@ Status: Warrior 💪
     - 2x40s + 50s Plank
     - 2x30s + 40s Side Plank    
  
- 
+ ### Tuesday, 28th of September, 2021
+Status: Warrior 💪
+
+- Begin With Body Weight, Phase 0, Full Body
+    - 2x8 Biginners Burpee
+    - 3x12 Somo Squat
+    - 3x8 Bench Dip
+    - 3x11 Wall Slide
+    - 3x9 Superman
+    - 3x11 Diagonal Crunches
+    - 3x35s Flutter Kicks

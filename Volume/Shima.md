@@ -68,3 +68,15 @@ Status: Warrior 💪
    - 2x9 + 8 Push-Ups
    - 2x15 (3kg) Dumbbell Hamstring Curl
    - 2x10 1-Leg Splits on Ring [Middle + Side]
+
+### Sunday, 3th of October, 2021
+
+Status: Warrior 💪
+
+- Full Body
+   - 5x3 Chin Ups with Band
+   - 4x6 (10kg) Lying Dumbbell (Triceps Extension + Dumbbell Fly)
+   - 3x8 (20cm) Pistol Squat
+   - 1x24s Negative Push-Ups
+   - 2x36 Heel Raise
+   - 30 Shoulder Mobility

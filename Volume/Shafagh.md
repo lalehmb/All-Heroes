@@ -47,3 +47,15 @@ Status: Injured Warrior :face_with_head_bandage:
    - 3x16 Lunge Walk
    - 2x30 Hell Raise
    - 2x10 1-Leg Splits on Ring [Middle + Side]
+
+### Sunday, 3th of October, 2021
+
+Status: Warrior 💪
+
+- Full Body
+   - 3x10 Scap Push-Ups 
+   - 3x10 (6kg) Front Raise + Wall Sit
+   - 3x10 (4kg) Side Raise + Wall Sit
+   - 3x6 Knee Push-Ups
+   - 2x33 Heel Raise
+   - 3x6 Wall Slide on Ground

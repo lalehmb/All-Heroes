@@ -29,3 +29,13 @@ Status: Warrior 💪
     - 2x10 Rope
     - 30s Active Hang
     - 30s Hollow Body Hold
+
+### Tuesday, 5th of October, 2021
+Status: Warrior 💪
+
+- Begin With Body Weight, Phase 1, Pull & Legs
+    - 10, 13, 17s Chin-Up Hold
+    - 3x12 Y Fly TRX; Slope: 60^
+    - 10, 12 Cleopatra Comboi
+    - 3x7x5 V-Ups & Pancake
+    - 3x12 Elbow to Hand Plank

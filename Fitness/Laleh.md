@@ -1,4 +1,4 @@
-### Tuseday, 30th of September, 2021
+### Thursday, 30th of September, 2021
 Status: Grammy 👵
 
 - Recovery, Full Body, 3 Cycles, 10s Rest between Moves, 2min Rest between Cycles
@@ -29,3 +29,14 @@ Status: still Grammy 👵
     - 3x10x3 Compression Pike
     - 2x20 Leg Crunch
     - 2x20 Mountain Climber
+
+### Wednesday, 6th of October, 2021
+Status: Warrior 💪
+
+- Recovery, Full Body, 3 Cycles, 10s Rest between Moves, 2min Rest between Cycles
+    - 10 Pull-Ups with Green Band
+    - 10 Triceps Dip on Ring
+    - 100s Wall Sit
+    - 11 Single Leg Elevated Leg Hip Bridge
+    - 15 Superman
+    - 45s Flutter Kicks

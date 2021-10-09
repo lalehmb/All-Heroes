@@ -69,3 +69,16 @@ Status: Warrior 💪
     - 3x10 Superman
     - 3x11 Diagonal Crunches
     - 37, 40, 35s Flutter Kicks
+
+### Satureday, 9th of October, 2021
+Status: Warrior 💪
+
+- Begin With Body Weight, Phase 0, Full Body
+    - 2x13 Shoulder Mobility
+    - 3x55s Wall Sit
+    - 3x13 Ring Push-Ups 
+    - 3x10 Ring Row
+    - 2x14 Bridge Walk
+    - 2x60s Plank
+    - 2x50s Side Plank
+    - 30s Active Hang

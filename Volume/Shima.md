@@ -80,3 +80,15 @@ Status: Warrior 💪
    - 1x24s Negative Push-Ups
    - 2x36 Heel Raise
    - 30 Shoulder Mobility
+
+### Sunday, 10th of October, 2021
+
+Status: Warrior 💪
+
+- Full Body
+   - 2x4 + 3x3 Chin Ups with Band
+   - 3x8 (10kg) Lying Dumbbell (Triceps Extension + Dumbbell Fly) - Drop Set
+   - 3x9 (20cm) Pistol Squat
+   - 1x30s Negative Push-Ups
+   - 2x39 Heel Raise
+   - 20 Shoulder Mobility

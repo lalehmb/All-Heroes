@@ -59,3 +59,15 @@ Status: Warrior 💪
    - 3x6 Knee Push-Ups
    - 2x33 Heel Raise
    - 3x6 Wall Slide on Ground
+
+### Sunday, 10th of October, 2021
+
+Status: Warrior 💪
+
+- Full Body
+   - 3x10 (2kg) db External Rotation to Overhead Press
+   - 3x8 (6kg) Lying Down Triceps Extension
+   - 2x8 + 9 (6kg) Lying Down Chest Fly
+   - 3x12 Quad Extension with Rubber Band
+   - 39 , 45 Heel Raise
+   - 20 Shoulder Mobility

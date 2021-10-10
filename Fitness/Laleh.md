@@ -40,3 +40,15 @@ Status: Warrior 💪
     - 11 Single Leg Elevated Leg Hip Bridge
     - 15 Superman
     - 45s Flutter Kicks
+
+
+### Sunday, 10th of October, 2021
+Status: Warrior 💪
+
+- Recovery, Full Body, 3 Cycles, 10s Rest between Moves, 2min Rest between Cycles
+    - 9 Wide Push-Ups
+    - 12 Ring Rows
+    - 13 Lunges 
+    - 300 Rope
+    - 1min Handstand Hold on Wall
+    - 20 Shoulder Mobility

@@ -47,3 +47,13 @@ Status: Warrior 💪
     - 3x20 Spider Plank
     - 3x1 min Rope
     - 4x5 Shoulder Mobility
+
+### Mondday, 11th of October, 2021
+Status: Warrior 💪
+- Begin With Body Weight, Phase 2, Push & Hams
+    - 3x8 Pike Pushups on Bench
+    - 3x8 (6kg) Lunges Through
+    - 3x8 Diamond Pushups
+    - 2x8 Jefferson Curls
+    - 3x20 Side Plank With Rotation
+    - 3x12 Single Leg V-Ups

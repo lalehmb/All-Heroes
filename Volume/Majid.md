@@ -48,7 +48,7 @@ Status: Warrior 💪
     - 3x1 min Rope
     - 4x5 Shoulder Mobility
 
-### Mondday, 11th of October, 2021
+### Monday, 11th of October, 2021
 Status: Warrior 💪
 - Begin With Body Weight, Phase 2, Push & Hams
     - 3x8 Pike Pushups on Bench

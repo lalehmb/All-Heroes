@@ -71,3 +71,16 @@ Status: Warrior 💪
    - 3x12 Quad Extension with Rubber Band
    - 39 , 45 Heel Raise
    - 20 Shoulder Mobility
+
+
+### Tuesday, 12th of October, 2021
+
+Status: Injured Warrior :face_with_head_bandage:
+
+- Full Body
+   - 3x10 Front Raise with Band
+   - 3x10 Pull Through with Band
+   - 3x10 db Rotator Cuff
+   - 60 Quad Contraction
+   - 3x10 Compression Pike
+   - 2x15 (3kg) Dumbbell Hamstring Curl

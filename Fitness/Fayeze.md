@@ -82,3 +82,15 @@ Status: Warrior 💪
     - 2x60s Plank
     - 2x50s Side Plank
     - 30s Active Hang
+
+ ### Tuesday, 12th of October, 2021
+Status: Warrior 💪
+
+- Begin With Body Weight, Phase 0, Full Body
+    - 2x10 Biginners Burpee
+    - 3x12 Somo Squat on Ring
+    - 3x9 Bench Dip
+    - 3x10 Wall Slide
+    - 3x11 Superman
+    - 2x12 Diagonal Crunches
+    - 60s plank

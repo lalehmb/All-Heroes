@@ -39,3 +39,14 @@ Status: Warrior 💪
     - 10, 12 Cleopatra Comboi
     - 3x7x5 V-Ups & Pancake
     - 3x12 Elbow to Hand Plank
+
+### Tuesday, 12th of October, 2021
+Status: Tired Warrior :hot_face:
+
+- Begin With Body Weight, Phase 1, Push & Pull
+    - 12, 9, 12 Push-Ups; TRx, Bed Height, Bench
+    - 21, 18, 16 TRX Biceps Curl (30 degree slope)
+    - 3x8 Knee Raise
+    - 22, 16,12 Mountain Climber
+    - 3x40s Rope
+    

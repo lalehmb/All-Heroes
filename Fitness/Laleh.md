@@ -52,3 +52,15 @@ Status: Warrior 💪
     - 300 Rope
     - 1min Handstand Hold on Wall
     - 20 Shoulder Mobility
+
+
+### Wednesday, 13th of October, 2021
+Status: Warrior 💪
+
+- Recovery, Full Body
+    - 4x6 Chest Dips with Red Band
+    - 3x20 Single Leg Quadriceps Curl with Black Band
+    - 3x12sx4Station Pull Up Hold
+    - 3x11x3 Compression Pike
+    - 3x22 Leg Crunch
+    - 3x22 Mountain Climber

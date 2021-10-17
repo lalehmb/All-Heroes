@@ -64,3 +64,14 @@ Status: Warrior 💪
     - 3x11x3 Compression Pike
     - 3x22 Leg Crunch
     - 3x22 Mountain Climber
+
+### Sunday, 17th of October, 2021
+Status: Warrior 💪
+
+- Recovery, Full Body, 3 Cycles, 10s Rest between Moves, 1min Rest between Cycles
+    - 11 Pull-Ups with Green Band
+    - 11 Triceps Dip on Ring
+    - 12 Ring Pistol Squat
+    - 12 Ring Hip Bridge
+    - 15 Superman
+    - 60s Hollow Body Hold

@@ -50,3 +50,12 @@ Status: Tired Warrior :hot_face:
     - 22, 16,12 Mountain Climber
     - 3x40s Rope
     
+### Sunday, 17th of October, 2021
+Status: Warrior 💪
+
+- Begin With Body Weight, Phase 1, Pull & Legs
+    - 4x8s Chin-Up Hold
+    - 3x13 Y Fly TRX; Slope: 65^
+    - 2x12 Cleopatra Comboi
+    - 3x30 Flutter Kicks
+    - 3x7 Full Elbow to Hand Plank on Knee

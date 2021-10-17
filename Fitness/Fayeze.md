@@ -94,3 +94,15 @@ Status: Warrior 💪
     - 3x11 Superman
     - 2x12 Diagonal Crunches
     - 60s plank
+
+### Satureday, 17th of October, 2021
+Status: Warrior 💪
+
+- Begin With Body Weight, Phase 0, Full Body
+    - 3x9 TRX Jump Squat
+    - 3x5+5 Single Hand TRX PushUps 
+    - 3x7 TRX PowerPulls
+    - 3x8 Roll Plank
+    - 3x8 Saw Plank
+    - 3x6 Pike to Plank
+    

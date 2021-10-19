@@ -106,3 +106,14 @@ Status: Warrior 💪
     - 3x8 Saw Plank
     - 3x6 Pike to Plank
     
+### Tuesday, 19th of October, 2021
+Status: Warrior 💪
+
+- Begin With Body Weight, Phase 0, Full Body
+    - 3x6 Candlestick Roll to Squats
+    - 3x8 Triceps Extention
+    - 3x8 Alternative Side Lunges
+    - 3x8 Biceps Curl
+    - 3x8 Deadlift
+    - 2x30s + 40s Hollow Body Hold
+  

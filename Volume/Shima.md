@@ -104,3 +104,15 @@ Status: Warrior 💪
    - 3x9 Push-Ups
    - 2x15 (3kg) Dumbbell Hamstring Curl
    - 1x15 1-Leg Splits on Ring [Middle + Side]
+
+### Tuesday, 19th of October, 2021
+
+Status: Energetic Warrior 👊
+
+- Full Body
+   - 3x6 CandleStick Roll to Squat
+   - 3x10 PushUps
+   - 3x10 Ring Crossed Biceps Curl
+   - 3x10 Ring Triceps Extension
+   - 3x10 (20cm) Pistol Squat
+   

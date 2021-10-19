@@ -84,3 +84,16 @@ Status: Injured Warrior :face_with_head_bandage:
    - 60 Quad Contraction
    - 3x10 Compression Pike
    - 2x15 (3kg) Dumbbell Hamstring Curl
+
+### Tuesday, 19th of October, 2021
+
+Status: Energetic Warrior 👊
+
+- Full Body
+   - 3x6 CandleStick Roll to Squat
+   - 2x15+12 PushUps on Knee
+   - 3x10 Ring Crossed Biceps Curl
+   - 3x10 Ring Triceps Extension
+   - 3x25s Lunge Pulse
+   - 3x60s Wall Sit
+   

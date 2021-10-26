@@ -118,7 +118,7 @@ Status: Energetic Warrior 👊
    
    ### Tuesday, 26th of October, 2021
 
-Status: Energetic Warrior 👊
+Status: Warrior 💪
 
 - Full Body
    - 4x5 L-Pull Ups Ring

@@ -117,3 +117,25 @@ Status: Warrior 💪
     - 3x8 Deadlift
     - 2x30s + 40s Hollow Body Hold
   
+### Sunday, 24th of October, 2021
+Status: Solo Warrior :cowboy_hat_face:
+
+- Begin With Body Weight, Phase 0, Full Body
+    - 10+2x9 TRX Jump Squat
+    - 3x6+6 Single Hand TRX PushUps 
+    - 3x8 TRX PowerPulls
+    - 3x8 Roll Plank
+    - 3x8 Saw Plank
+    - 3x7 Pike to Plank
+    
+### Tuesday, 26th of October, 2021
+Status: Warrior 💪
+
+- Begin With Body Weight, Phase 0, Full Body
+    - 3x7 Candlestick Roll to Squats
+    - 3x9 Triceps Extention
+    - 3x9 Alternative Side Lunges
+    - 15,16 Biceps Curl
+    - 3x17 Single Leg Deadlift
+    - 2x40s + 50s Hollow Body Hold
+  

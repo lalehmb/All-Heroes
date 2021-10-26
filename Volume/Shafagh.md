@@ -97,3 +97,14 @@ Status: Energetic Warrior 👊
    - 3x25s Lunge Pulse
    - 3x60s Wall Sit
    
+
+   ### Tuesday, 26th of October, 2021
+
+Status: Warrior 💪
+
+- Full Body
+   - 3x15 One-hand Row (15kg)
+   - 3x12 Shoulder Press (5kg)
+   - 3x10+10 Front Raise+FacePull with Band
+   - 3x17s Pull Up Hold
+   - 3x10 Hamstring Curl-DB & Band

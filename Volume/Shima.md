@@ -116,3 +116,12 @@ Status: Energetic Warrior 👊
    - 3x10 Ring Triceps Extension
    - 3x10 (20cm) Pistol Squat
    
+   ### Tuesday, 26th of October, 2021
+
+Status: Energetic Warrior 👊
+
+- Full Body
+   - 4x5 L-Pull Ups Ring
+   - 3x8 Pike Pushups
+   - 3x10 Jump Squat
+   - 3x10 Hamstring Curl-DB & Band

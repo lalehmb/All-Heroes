@@ -139,3 +139,13 @@ Status: Warrior 💪
     - 3x17 Single Leg Deadlift
     - 2x40s + 50s Hollow Body Hold
   
+### Satureday, 30th of October, 2021
+Status:  Champion 👊
+
+- Begin With Body Weight, Phase 0, Full Body
+    - 3x15 TRX Jump Squat
+    - 3x10 Single Hand TRX PushUps 
+    - 3x14 TRX Rows
+    - 3x10 Roll Plank
+    - 3x10 Saw Plank
+    - 3x8 Pike to Plank

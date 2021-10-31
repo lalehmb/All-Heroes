@@ -125,3 +125,15 @@ Status: Warrior 💪
    - 3x8 Pike Pushups
    - 3x10 Jump Squat
    - 3x10 Hamstring Curl-DB & Band
+
+### Sunday, 31th of October, 2021
+
+Status: Warrior 💪
+
+- Full Body
+   - 3x8 CandleStick Roll to Squat Jump
+   - 3x11 PushUps
+   - 3x11 Ring Triceps Extension
+   - 3x11 Ring Crossed Biceps Curl
+   - 3x11 (20cm) Pistol Squat
+   - 45, 60s Middle Split Hold

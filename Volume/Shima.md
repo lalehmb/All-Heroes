@@ -128,7 +128,7 @@ Status: Warrior 💪
 
 ### Sunday, 31th of October, 2021
 
-Status: Warrior 💪
+Status: Thinking Warrior 💪🤔
 
 - Full Body
    - 3x8 CandleStick Roll to Squat Jump

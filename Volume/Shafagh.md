@@ -108,3 +108,17 @@ Status: Warrior 💪
    - 3x10+10 Front Raise+FacePull with Band
    - 3x17s Pull Up Hold
    - 3x10 Hamstring Curl-DB & Band
+
+### Sunday, 31th of October, 2021
+
+Status: Warrior 💪
+
+- Full Body
+   - 3x10 CandleStick Roll to Squat
+   - 2x15+13 PushUps on Knee
+   - 3x11 Ring Crossed Biceps Curl
+   - 3x11 Ring Triceps Extension
+   - 2x30s Lunge Pulse
+   - 2x60s Wall Sit   
+   - 10 Fixed Lunges
+   - 45, 60s Middle Split Hold

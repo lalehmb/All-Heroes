@@ -149,3 +149,25 @@ Status:  Champion 👊
     - 3x10 Roll Plank
     - 3x10 Saw Plank
     - 3x8 Pike to Plank
+
+### Sunday, 7th of Novamber, 2021
+Status: Solo Warrior :cowboy_hat_face:
+
+- Begin With Body Weight, Phase 0, Full Body
+    - 3x12 TRX Jump Squat
+    - 3x10 Single Hand TRX PushUps 
+    - 3x15 TRX Rows
+    - 3x10 Roll Plank
+    - 3x10 Saw Plank
+    - 3x9 Pike to Plank
+
+### Tuesday, 9'th of November, 2021
+Status: Bride and Warrior 💪 👰‍♀️
+
+- Begin With Body Weight, Phase 0, Full Body
+    - 2x6+8 Candlestick Roll to Squats
+    - 3x10 Triceps Extention
+    - 15,16 Alternative Side Lunges
+    - 3x11 Biceps Curl
+    - 3x15 Romanian Deadlift
+    - 2x55s Hollow Body Hold
